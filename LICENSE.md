@@ -1,4 +1,4 @@
-
+hooked rare Scripts is the best hooked Script, featuring no clip and no cooldown. Safe and powerful for all your needs.
 
 
 
